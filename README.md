@@ -21,6 +21,6 @@
 - 🎓 Learning and growing at UChicago.
 - 🌟 Passionate about making economics and finance accessible and enjoyable.
 - 🌐 Enjoys world history trivia.
-- 📺 Loves watching "One Piece" and "Haikyuu."
+- 📺 Loves watching "One Piece" and "Haikyu!!"
 
 Feel free to explore my repositories, and let's connect and collaborate! 🚀✨
